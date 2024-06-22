@@ -12,5 +12,5 @@
 
 ## Contact Stuff🙃
 - 📫 How to reach me:
-  - 💌E-Mail: benachrichtigungen111@gmail.com
+  - 💌E-Mail: nunjauwu@proton.me
   - 🌐Discord: nunjauwu
